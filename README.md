@@ -6,6 +6,6 @@
 
 _Me chama no free fire 😜🔥🔫_
 
-_Me chama se quiser casar isabellle.rigatto@escola.pr.gov.br💋💍_
+_Me chama se for mandar pix isabellle.rigatto@escola.pr.gov.br💋💍_
 
 ![](https://i.pinimg.com/originals/70/cc/53/70cc53a3e30da2b23e84004524cd0a1d.jpg)
